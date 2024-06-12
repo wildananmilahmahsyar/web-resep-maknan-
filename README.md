@@ -1,2 +1,7 @@
 # web-resep-maknan-
 gambatte yoo onichan
+ANGGOTA KELOMPOK :
+- WILDAN AN'MILLAH.M
+- THORIQ MUSADDIK
+- FAHRUL
+- MUHAMMAD RIFKY
